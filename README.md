@@ -1,4 +1,7 @@
 # Profess1onalName
-but its not the first time that I walked to the light in order to save myself.
-As I found myself gleaming at these lights i realize that I'm not saving anything, but only forsaking.
-:neckbeard: :trollface:
+ 
+ - I'm in a video game programming and design class 🎮
+ - I have a 2000's model GMC short wide, single cab 🚚
+ - I have Chronic back pain ⚠️
+ - I am the ULTIMATE GNOMER
+
